@@ -24,7 +24,6 @@ HİKAYEMİZİN SONUNA GELDİĞİMİZE GÖRE BU ARKADAŞ GELİPTE BOTÇU BENİM S
 
 ![image](https://github.com/user-attachments/assets/067174c7-aee1-4ede-8ac1-8bad0b8ffa5d)
 ![image](https://github.com/user-attachments/assets/45fc0cc3-0dce-43ca-aa72-5f9c40eb6b75)
-![image](https://github.com/user-attachments/assets/0021ee72-d198-4cbb-9154-8967e54481ef)
 ![image](https://github.com/user-attachments/assets/8f8b842a-bcfa-458f-8ad9-3cd5238e018e)
 ![image](https://github.com/user-attachments/assets/75fb332c-d0de-4bb3-bcbc-99590b86f95c)
 ![image](https://github.com/user-attachments/assets/21a14d15-c752-477a-bb3a-fa436891b782)
