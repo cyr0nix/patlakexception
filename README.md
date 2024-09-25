@@ -21,6 +21,8 @@ HİKAYEMİZİN SONUNA GELDİĞİMİZE GÖRE BU ARKADAŞ GELİPTE BOTÇU BENİM S
 # BU ARKADAŞA HALA İNANAN VARSA shencim EKLESİN GERİ KALAN SSLERİ DE YOLLARIM
 # HE BİDE ŞU SSİ DE ATAYIM O KURUCULARA YAZMAYA DEVAM ETSİN BİZ GRUPTA DAŞŞAK GEÇİYORUZ FSUHAISAHFSA
 
+# YENİ BİLGİ MAYMUN 1K YA VURDUĞUMU SÖYLÜYOR VAY AMQ UCUZA GİDİYORUZ GENE XD 10K KADAR ÇIKTI HA
+![image](https://github.com/user-attachments/assets/de172596-12da-489b-aeaf-b308bb9883c2)
 
 ![image](https://github.com/user-attachments/assets/067174c7-aee1-4ede-8ac1-8bad0b8ffa5d)
 ![image](https://github.com/user-attachments/assets/45fc0cc3-0dce-43ca-aa72-5f9c40eb6b75)
